@@ -1,0 +1,2 @@
+# Wihata
+Tugas tik
